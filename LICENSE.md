@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with high-frequency nft rarity sniper bot | real-time-monitoring + take-profit, the #1 nft rarity sniper bot. Includes real-time-monitoring and
 
 
 
